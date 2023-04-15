@@ -1,5 +1,5 @@
 
-# 4 Day Split
+# 4 Day Split / Bro Split
 
 ## Deadlift
 
